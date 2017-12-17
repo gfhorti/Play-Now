@@ -1,5 +1,3 @@
-<body bgcolor="#DDDDDD">
-<div>
 <h1 align="center">Click and Play video </h1>
 <div align="center"><a href="http://www.horticulture-courses.info/horticulture-course/"><img width="534" height="340" src="https://4.bp.blogspot.com/-LWPVqfRoyKk/WjZZIhKSN9I/AAAAAAAAAPc/D6dKF0RVtcMWS6_YncJtavVjvTbju_SFACLcBGAs/s1600/pizap.com15086084824507.jpg"></a></div>
 <h1 align="center">Click and Play video </h1>
