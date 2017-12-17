@@ -2,8 +2,8 @@
 <body bgcolor="#DDDDDD">
 <div>
 <h1 align="center">Click to play this video </h1>
-<div align="center"><a href="http://www.laptop121.com/forex-currency-trading-methodstips-2"><img width="534" height="340" src="https://2.bp.blogspot.com/-vB1qux3YCqQ/WjTCjTQJCnI/AAAAAAAAAMw/xXmmKUFsjPYJHilXCHnoNJEoe_DhY6uvACLcBGAs/s1600/fdgregre.png"></a></div>
+<div align="center"><a href="http://www.horticulture-courses.info/horticulture-course/"><img width="534" height="340" src="https://4.bp.blogspot.com/-LWPVqfRoyKk/WjZZIhKSN9I/AAAAAAAAAPc/D6dKF0RVtcMWS6_YncJtavVjvTbju_SFACLcBGAs/s1600/pizap.com15086084824507.jpg"></a></div>
 <h1 align="center">Click to play this video </h1>
-<div align="center"><a href="http://www.earnmoneyu.com/forex-currency-trading-methods/"><img width="534" height="340" src="https://1.bp.blogspot.com/-SdOZd0x2p6Q/WjTCuzS0Z_I/AAAAAAAAAM0/bUcn9e9E_iANlEbCvB2NHieLgMCRUIA1QCLcBGAs/s1600/frwerw.png"></a></div>
+<div align="center"><a href="http://www.touchtyping-course.info/easytype-typing-tutor-course/"><img width="534" height="340" src="https://1.bp.blogspot.com/-YoueiuCBDiQ/WjZZBm1-0FI/AAAAAAAAAPY/cb0xSSyDs9IF7zXNILNPZEU0KWKmDkMDgCLcBGAs/s1600/pizap.com15086085163379.jpg"></a></div>
 <h1 align="center">Click to play this video </h1>
-<div align="center"><a href="http://www.laptop121.com/minimize-trading-losses-forex-market/"><img width="534" height="340" src="https://3.bp.blogspot.com/-jcbU8IOTMnY/WjTC5HLmG0I/AAAAAAAAAM4/5sjoo5HOMkk0ANREcp4wkSMpMdKw6EvYgCLcBGAs/s1600/Screenawewshot_4.png"></a></div>
+<div align="center"><a href="http://www.earnmoneyu.com/market-trading-success-forex-software/"><img width="534" height="340" src="https://4.bp.blogspot.com/-7Ffp5Oa5WbM/WjZZNalvU-I/AAAAAAAAAPg/PQtV2y5gbl8m-vcEj5J_FZQC6QKIqPyiwCLcBGAs/s1600/pizap.com150860856260111.jpg"></a></div>
